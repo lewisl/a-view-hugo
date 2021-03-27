@@ -16,7 +16,7 @@ We stopped at an abortive effort to build a fishing pier:
 
 {{< figure src="/images/2020/06/IMG_2570.jpg" >}}
 
-Lewis, like so many cyclists, is clearly a scofflaw or merely unable to read signs (well, neither...):
+Lewis, like so many cyclists, is clearly a scofflaw or merely unable to read signs or both (well, neither...):
 
 {{< figure src="/images/2020/06/IMG_2571.jpg" >}}
 
